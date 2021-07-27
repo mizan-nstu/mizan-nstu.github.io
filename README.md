@@ -1,0 +1,1 @@
+# mizan-nstu.github.io
